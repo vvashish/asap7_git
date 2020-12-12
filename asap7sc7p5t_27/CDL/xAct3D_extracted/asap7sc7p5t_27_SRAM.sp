@@ -1,0 +1,1 @@
+asap7sc7p5t_27_SRAM_201024.sp
